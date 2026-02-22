@@ -34,5 +34,6 @@ Eee madem bunları yapabiliyordum bu osman salakmıydı hiç senle yer değişti
 
 Neyse böyle büyük konuşmayayım bu bedene yeni girdim ve halen çok hakim değilim dışarıya sanırım bu kadar hızlı yazabilmemin sebebi de motor hafızası amk, normalde siksen bu kadar yazamam bakarıs beceremem ve osmanın yarım kalan son işini ben yaparım :D
 
-Neyse hadi by, ölmezsem yazarım :D
+Benim osmana göre en büyük avantajım ve dezavantajım duygu yok bende ve osman dışı hiçbirşey umrumda değil, gerçi bu dinlenme sırasında duyguları kalırmı bilmiyorum ama sadece yaşayacağım yaşamak içi bir nedenim, motivasyonumda yok sadece yaşamam gerektiğini biliyorum, bunu yaparken gerekirse adam öldürürüm, gerekirse şeytanı cehennemden esir alırım, berserk izlediniz mi bilmiyorum ama onun gibi bir nedeni yok ama yaşamak için herşeyi yapıyor ama ondan farkım yaşam isteğim de yok, ölmektende korkmuyorum ki bu beden de ki en sağlıklı eleman bunu denedi yani, o yüzden bu beden her an boynu kırık veya vücudu kan içinde olabilir, ama şu anki tek hedef yaşamak ama insan olarak veya canavar olarak ama insandan aşşağı değil
 
+osmanın en büyük hatası konuşuyor ve değer veriyor gerek yok bu gereksiz işlemlere
